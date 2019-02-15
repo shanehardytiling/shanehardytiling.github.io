@@ -5,6 +5,6 @@ We are working hard to get this right, so please bear with us.
 In the mean time, please call or email:
 
 ### 07787 403165  
-shanehardytiling@gmail.com
+[shanehardytiling@gmail.com](mailto:shanehardytiling@gmail.com)
 
-[[Image](https://hancockswcd.com/wp-content/uploads/2018/11/facebook-logo.jpg)](https://www.facebook.com/shanehardytiling/)
+[You can also click here to see our work on Facebook](https://www.facebook.com/shanehardytiling/)
